@@ -1,6 +1,6 @@
 # Finding Your Authentic Self or Not
 
-Revised from the uploaded PowerPoint: eight speaking slides including a new short summary between the original slides 5 and 6, plus one reference slide. The practical advice is simplified; the ending explicitly returns to MBTI. The uploaded ordering and chart are preserved. Approximately 337 spoken English words; intended for about four minutes with a slow pace and pauses. Complete matching speaker notes are included.
+Latest version: 11 speaking slides plus one reference appendix. A short summary is followed by a separate “So, what can we do?” transition. The ending is split into an MBTI callback, the central takeaway, and a Thank you page. Matching speaker notes and the separate script contain approximately 337 English words; intended for about four minutes with slow speech and pauses. The original chart and uploaded content order are retained.
 
 ## Downloads
 
